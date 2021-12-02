@@ -1,4 +1,4 @@
-![MERN STACK DEVELOPER](https://i.ibb.co/jWrQKwF/NKH-1270-4.jpg)
+![MERN STACK DEVELOPER](https://i.ibb.co/F3QgtY6/NKH-1270-5.jpg)
 ### Hi there 👋, This is Nauroz Rashid
 #### MERN STACK DEVELOPER
 
